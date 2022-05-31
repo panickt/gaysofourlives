@@ -1,2 +1,2 @@
-# gaysofourlives
+# GaysOfOurLives
 Like Sands through the hour glass..... 
